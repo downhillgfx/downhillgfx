@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @downhillgfx
+- 👀 I’m interested in graphic design and beginner coding
+- 🌱 I’m currently learning motion design, coding
